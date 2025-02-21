@@ -1,0 +1,2 @@
+# EtecAB
+Primeiro exercicio uauuuuuuuuuuuuuuuuuuuuuuuuuuuuu
